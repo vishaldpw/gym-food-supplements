@@ -89,6 +89,3 @@ First Month: 3-5 kg
 Next 3 Months: 8-12 kg
 
 6 Months Goal: Reach 85-90 kg
-
-# weightLoss
-weightloss
