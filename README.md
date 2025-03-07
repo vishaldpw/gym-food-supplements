@@ -30,11 +30,49 @@ Gym Workout (3 Days a Week)
 
 🔹 Strength Training (45 min) → Focus on muscle-building to burn more fat.
 
-Day 1: Chest & Triceps (Bench press, push-ups, tricep dips)
+Day 1: Chest, Shoulders & Triceps
 
-Day 2: Back & Biceps (Pull-ups, lat pull-downs, bicep curls)
+Bench Press (Chest)
 
-Day 3: Legs & Core (Squats, lunges, deadlifts, planks)
+Push-Ups (Chest)
+
+Overhead Shoulder Press (Shoulders & Delts)
+
+Lateral Raises (Delts)
+
+Tricep Dips (Triceps)
+
+
+Day 2: Back, Biceps & Rear Delts
+
+Pull-Ups (Back)
+
+Lat Pull-Downs (Back)
+
+Bent-Over Rear Delt Fly (Rear Delts)
+
+Face Pulls (Rear Delts & Upper Traps)
+
+Bicep Curls (Biceps)
+
+
+Day 3: Legs, Core & Traps
+
+Squats (Legs)
+
+Lunges (Legs)
+
+Deadlifts (Legs, Core & Traps)
+
+Planks (Core)
+
+Shrugs (Traps)
+
+
+
+This ensures all muscle groups, including shoulders and delts, are covered efficiently within 3 days. Let me know if you want any tweaks!
+
+
 
 Walking Routine
 
