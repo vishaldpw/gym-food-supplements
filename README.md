@@ -68,6 +68,8 @@ Planks (Core)
 
 Shrugs (Traps)
 
+plank, bridges, bird dog
+
 
 
 This ensures all muscle groups, including shoulders and delts, are covered efficiently within 3 days. Let me know if you want any tweaks!
