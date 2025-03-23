@@ -136,3 +136,84 @@ food
 - protein shake+ 2 eggs+ peanuts+ almonds
 - apple+ fruits or curd + museli+ tea
 - 2 roti+ 2 cups of dal + veggies 
+
+Here’s your optimized diet plan in a copy-paste-friendly format:
+
+
+---
+
+Optimized Diet Plan (2 PM - 10 PM Eating Window)
+
+💪 Meal 1 (2 PM – Post-Fast Meal)
+
+🔹 High Protein + Healthy Carbs
+
+Whey protein shake (with water or milk)
+
+2 boiled eggs
+
+1 small bowl of curd with 1 tbsp muesli + 5-6 almonds & 2 walnuts
+
+
+⏩ Why? Fast digestion after fasting, protein kickstart, energy from muesli & nuts
+
+
+---
+
+🏋️‍♂️ Pre-Workout (If You Train Before Dinner)
+
+🔹 Quick Carbs + Protein
+
+1 banana or 2 dates
+
+Handful of peanuts
+
+
+⏩ Why? Energy for workout, prevents muscle breakdown
+
+
+---
+
+🥗 Meal 2 (6-7 PM – Main Meal)
+
+🔹 High Protein + Fiber-Rich Carbs
+
+2 roti OR 1.5 cups cooked rice
+
+2 cups dal (toor/moong/masoor mix for better protein)
+
+200g veggies (bhindi, spinach, etc., cooked with 1 tsp ghee)
+
+Curd (small bowl) with ½ tsp roasted jeera
+
+
+⏩ Why? Balanced meal with protein, carbs, and fiber, supports recovery
+
+
+---
+
+🥜 Meal 3 (9-10 PM – Light Meal Before Fast Starts)
+
+🔹 Protein + Healthy Fats (No Heavy Carbs at Night)
+
+1 boiled egg
+
+Handful of almonds & walnuts
+
+Whey with water (if protein is low for the day)
+
+
+⏩ Why? Supports overnight metabolism, prevents muscle loss
+
+
+---
+
+💡 Adjustments & Tips:
+
+✅ If weight loss is slow, reduce roti to 1 or cut muesli to 1 tbsp
+✅ If energy is low, increase dal quantity or add 1 more egg
+✅ Drink 2-3 liters of water daily
+
+This plan ensures high protein (~140-160g) while keeping calories in check. Let me know if you need any changes!
+
+
