@@ -132,7 +132,7 @@ Next 3 Months: 8-12 kg
 
 food
 
-2 black coffee 
-protein shake+ 2 eggs+ peanuts+ almonds
-apple+ fruits or curd + museli+ tea
-2 roti+ 2 cups of dal + veggies 
+- 2 black coffee 
+- protein shake+ 2 eggs+ peanuts+ almonds
+- apple+ fruits or curd + museli+ tea
+- 2 roti+ 2 cups of dal + veggies 
