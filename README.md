@@ -129,3 +129,10 @@ First Month: 3-5 kg
 Next 3 Months: 8-12 kg
 
 6 Months Goal: Reach 85-90 kg
+
+food
+
+2 black coffee 
+protein shake+ 2 eggs+ peanuts+ almonds
+apple+ fruits or curd + museli+ tea
+2 roti+ 2 cups of dal + veggies 
