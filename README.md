@@ -1,6 +1,6 @@
 Weight Loss Plan: Gym + Walking + Intermittent Fasting
 
-Your BMI is 31.2 (Obese Category), so focusing on fat loss while maintaining muscle is key. Below is a structured plan combining diet, exercise, and fasting to help you lose weight effectively.
+
 
 1️⃣ Intermittent Fasting (IF) Plan 🕒
 
